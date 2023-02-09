@@ -6,7 +6,7 @@
 <br>
 <br>
 
-📧EMAIL📧
+📧Email📧
   
 rkdgus532@naver.com
   <br>
